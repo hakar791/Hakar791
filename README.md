@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+hi![1000017675](https://github.com/user-attachments/assets/a0fca652-3d57-4c9a-b084-f0116f7e9e1c)
+detels
+hii
